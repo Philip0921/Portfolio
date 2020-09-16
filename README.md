@@ -1,2 +1,2 @@
 # Portfolio-WarCry
-Här lägger jag upp lite bilder samt filmer från spel jag har varit med och skapat.
+Here I post some pictures and videos from games I have been involved in and created.
